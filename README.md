@@ -1,1 +1,1 @@
-I'm currently in second year at faculty of computer and information science at Ain Shams university, I am passionate about learning programming, mathematics and developing the problem solving skill, I also like biology and want to specialize in bioinformatics.
+I'm currently in the third year at faculty of computer and information science at Ain Shams university, I am passionate about learning programming, mathematics and developing the problem solving skill.
